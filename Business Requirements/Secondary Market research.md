@@ -13,3 +13,6 @@ Measuring instagram performance via metrics
 
 Best Niches to grow instagram followers
 - https://socialupgrade.co/blog/8-best-niches-to-grow-instagram-followers-and-make-money/
+
+Market Research
+- [https://blog.hootsuite.com/instagram-statistics/](https://blog.hootsuite.com/instagram-statistics/)
